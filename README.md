@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Barcode77
 - 👀 I’m interested in creating new stuff! 
 - 🌱 I’m currently learning SQL 
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on new projects, eager to learn.
 - 📫 How to reach me karaniekk@gmail.com
 - ⚡ Fun fact: ジョゼ・モウリーニョ
 
