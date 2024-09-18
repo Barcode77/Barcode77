@@ -2,7 +2,7 @@
 - 👀 I’m interested in creating new stuff! 
 - 🌱 I’m currently learning SQL 
 - 💞️ I’m looking to collaborate on new projects, eager to learn.
-- 📫 How to reach me karaniekk@gmail.com
+- 📫 How to reach me 
 - ⚡ Fun fact: ジョゼ・モウリーニョ
 
 <!---
